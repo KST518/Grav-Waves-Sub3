@@ -1,2 +1,2 @@
 # Grav-Waves
-heheheheheheheheh
+blap blip slavs are shit
